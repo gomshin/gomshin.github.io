@@ -1,0 +1,1 @@
+# gomshin.github.io
